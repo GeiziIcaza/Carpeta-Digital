@@ -1,0 +1,1 @@
+Esta carpeta contiene documentos y certificados que acreditan mi participación en actividades de voluntariado, en las que he desarrollado habilidades de comunicación, trabajo en equipo, organización y atención al público.
